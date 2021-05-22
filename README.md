@@ -1,2 +1,2 @@
 Jang Minhyeok 20213072
-Kookmin Univ. SW
+Kookmin Univ. SW Dept.
